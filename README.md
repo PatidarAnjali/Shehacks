@@ -1,1 +1,1 @@
-# Shehacks
+# Shehacks - Building an inclusive space to promote women and non-binary individuals in technology!
